@@ -1,0 +1,1 @@
+Gado finance logos.
